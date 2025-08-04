@@ -1,1 +1,0 @@
-# adarshvj2020-tech.io
